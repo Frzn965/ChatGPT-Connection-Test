@@ -1,0 +1,1 @@
+ChatGPT GitHub write-access validation — November 2026
